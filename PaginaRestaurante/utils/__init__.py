@@ -1,0 +1,1 @@
+# esta wea puedes estar sin nada como tu cerebro porque el hijueperra de python necesita un archivo init :D
